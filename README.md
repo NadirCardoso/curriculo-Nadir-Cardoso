@@ -1,2 +1,2 @@
-# curriculo-Nadir-Cardoso
+# Nadir Cardoso
 Profissionalismo e Dedicação
